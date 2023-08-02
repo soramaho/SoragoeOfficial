@@ -75,4 +75,6 @@ https://policies.google.com/privacy?hl=ja
 本ポリシーに関するお問い合わせは，下記のメールアドレスまでお願いいたします。  
 Eメールアドレス：soragoe.official@gmail.com
 
-２０２３年９月１日　施行
+<br>
+
+2023年9月1日 施行
