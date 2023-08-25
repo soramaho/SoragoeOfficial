@@ -77,4 +77,4 @@ Eメールアドレス：soragoe.official@gmail.com
 
 <br>
 
-2023年9月1日 施行
+2023年8月24日 施行
